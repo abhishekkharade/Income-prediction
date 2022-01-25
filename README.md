@@ -7,5 +7,3 @@ https://drive.google.com/file/d/1yPURlELRwx1P63aCnSCOrvETAM-Ddn_c/view?usp=shari
 ![Screenshot (881)](https://user-images.githubusercontent.com/67858566/150908839-6f96a1e3-ef69-43df-a3e6-b3dfda1464b0.png)
 ![Screenshot (882)](https://user-images.githubusercontent.com/67858566/150908851-09e8cf7e-b9a0-4361-83a1-1874a2d081fc.png)
 ![2022-01-25 (2)](https://user-images.githubusercontent.com/67858566/150908855-1e9c6e77-9a35-4b72-8778-865acd042ac7.png)
-![2022-01-25 (3)](https://user-images.githubusercontent.com/67858566/150908861-12ce8c84-d30d-40ed-964a-e0b03175484d.png)
-![Screenshot (883)](https://user-images.githubusercontent.com/67858566/150908864-b906cfcc-7452-4aed-9d81-930e64f310ce.png)
